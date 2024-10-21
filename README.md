@@ -6,4 +6,4 @@ Sou estudande do Colegio Barbosa Ferraz, atualmente cursando tecnico em informat
 
 Sou praticante de musculação fiz um curso sobre periodização de treino, 
 
-![](https://media1.tenor.com/m/9guMxBh4h7oAAAAd/hasbulla-hasbullah.gif)
+![](https://i.gifer.com/72hy.mp4)
